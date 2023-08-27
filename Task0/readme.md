@@ -1,1 +1,1 @@
-Screenshot of LinkedIn Account
+Screenshot of LinkedIn and Github accounts.
